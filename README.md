@@ -1,0 +1,1 @@
+# COVID-19-va-boshqa-pandemiyalar-statistikasi
